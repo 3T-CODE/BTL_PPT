@@ -12,7 +12,7 @@ https://github.com/3T-CODE/BTL_PPT/assets/84315264/c51f517f-35e8-4b22-a455-803b8
 https://github.com/3T-CODE/BTL_PPT/assets/84315264/77a151b7-9c5a-4943-ae82-1d1af50a5a74
 
 ### 3 Hướng dẫn phương pháp SR1 
-
+https://github.com/3T-CODE/BTL_PPT/assets/84315264/08a59456-1d7f-4535-a771-54edda3cb50e
 
 ## Lưu ý 
 
