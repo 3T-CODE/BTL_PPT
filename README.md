@@ -9,7 +9,7 @@ Tác giả : Nhóm 22 lớp L10 môn PPT khóa 2023 - 2024
 https://github.com/3T-CODE/BTL_PPT/assets/84315264/c51f517f-35e8-4b22-a455-803b862ca412
 
 ### 2 Hướng dẫn phương pháp DFP 
-
+https://github.com/3T-CODE/BTL_PPT/assets/84315264/77a151b7-9c5a-4943-ae82-1d1af50a5a74
 
 ### 3 Hướng dẫn phương pháp SR1 
 
