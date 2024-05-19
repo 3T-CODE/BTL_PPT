@@ -21,5 +21,3 @@ Một hạn chế chí mạng của các phương pháp trên là chúng tìm ng
 ### Video hạn chế 
 https://github.com/3T-CODE/BTL_PPT/assets/84315264/14dcee8e-bc48-4fd5-baa4-dc26849b3ed2
 
-
-
